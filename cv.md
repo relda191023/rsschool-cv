@@ -7,7 +7,7 @@
 
 ### Contact information
 
-1. Phone :   +0..
+1. Phone :   +..
 2. Email:    <relda19102023@inbox.ru>
 3. Discord:  relda191023
 4. Github:   relda191023
